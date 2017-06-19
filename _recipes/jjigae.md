@@ -13,7 +13,7 @@ Serves 4
 * pork, cut into chunks (neck, leg, whatever part that has some fat)
 * daikon, sliced
 * 1/2 C Gochujang
-* 1 Tbs Denjang
+* 1 Tbs Doenjang
 * 1 Tbs chili powder
 * 3 cup of your preferred stock(japanese dashi or similar kind is ideal)
 * 1/2Tbs minced garlic
